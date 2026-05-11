@@ -1,4 +1,4 @@
-# 
+# Excel for macOS custom Utility: multi-sheet-management & formula-editor offers the most advanced Excel for macOS utility, with multi-sheet-management and formula-editor. Ideal for
 
 
 
